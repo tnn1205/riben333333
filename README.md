@@ -25,4 +25,4 @@
 
 立即收藏本站，探索一个广告全无、更新快速、内容丰富的日本AV免费在线观看平台，尽享极致观影乐趣！
 
-<span style="display:none;">[Canonical link] ([ ](https://github.com/tnn1205/riben333333)）</span>
+<span style="display:none;">[Canonical link] (https://github.com/tnn1205/riben333333 ）</span>
